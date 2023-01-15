@@ -17,3 +17,4 @@
   </a>
 </div>
 <img src="https://komarev.com/ghpvc/?username=7seventh7&style=flat-square&color=blue" alt=""/>
+(⊙.⊙(☉̃ₒ☉)⊙.⊙)
